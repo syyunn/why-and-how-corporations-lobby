@@ -6,3 +6,4 @@ https://mises.org/wire/why-big-business-prefers-lobbying-government-competing-ma
 
 ## Related Queries
 Financial gains of corporations by lobbying
+- https://hbr.org/2016/05/lobbyists-are-behind-the-rise-in-corporate-profits
