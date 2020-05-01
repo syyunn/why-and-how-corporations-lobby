@@ -1,5 +1,8 @@
 # why-and-how-corporations-lobby
-Tax reduction, Ease regulation for new market opportunity, ... else?
+Tax reduction, Ease regulation, Subsidy
+
+Check the cases for each speicific purpose:
+https://visual.ly/community/Infographics/politics/amazing-roi-corporate-lobbying
 
 ## Lits
 https://mises.org/wire/why-big-business-prefers-lobbying-government-competing-marketplace
